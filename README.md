@@ -1,4 +1,4 @@
-## Olá! eu sou o Felipe Gomes! ✌️😉
+## Hey, I'm Felipe Gomes! ✌️😉
 
 - 🙂 Atualmente trabalho como Analista de E-commerce
 - 🤞 Estudante de Análise e Desenvolvimento de Sistemas
